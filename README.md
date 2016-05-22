@@ -6,3 +6,5 @@ action for career
 information
 
 对比前作
+
+When do we come to the comfort zone
